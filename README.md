@@ -1,1 +1,0 @@
-# Laundry-Service-Mobile-App
